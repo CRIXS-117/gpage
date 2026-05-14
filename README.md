@@ -1,3 +1,3 @@
 Pérez Salas Cristian Yahir 
-poot chan ivan fabrizio
+Poot Chan Ivan Fabrizio
 2AVPr
